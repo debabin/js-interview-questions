@@ -13,5 +13,5 @@
 - :popcorn: &nbsp;**[Youtube](https://www.youtube.com/channel/UCYimO7BCUwdGiaCXlwG-rLw)**
 - :popcorn: &nbsp;**[Rutube](https://rutube.ru/channel/24693196/)**
 - :bird: &nbsp;**[Twitter](https://twitter.com/db_dzo)**
-- :camera: &nbsp;**[Instagram](https://www.instagram.com/db_dzo/)**
+- :camera: &nbsp;**[Instagram](https://www.instagram.com/db_babin/)**
 - :robot: &nbsp;**[Discord](https://discordapp.com/users/181376683046076416/)**
